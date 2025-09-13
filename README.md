@@ -1,2 +1,2 @@
 # moha
-i have a Feinational problem i need some money
+I have a financial problem, I need some money
